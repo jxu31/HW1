@@ -1,2 +1,0 @@
-Jiawen Xu
-Baseball TEAM
